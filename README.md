@@ -1,3 +1,6 @@
+Disclaimer
+The opinions, imagery, and metaphors in this work reflect a past creative experiment and AI-generated continuations, not my current worldview. Any theological or political implications a reader might infer are unintended and should not be taken as endorsements or rejections of any ideology or movement.
+
 # PROJECT STATUS: DISCONTINUED
 
 Public Statement of Intent and Protection Against False Incrimination
