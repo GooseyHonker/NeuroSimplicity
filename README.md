@@ -51,7 +51,7 @@ All my work is publicly archived and verifiable:
 • This statement is timestamped and backed up in multiple locations
 I did not kill myself. I did not commit any violent crimes. If I am reported as having done either, please investigate thoroughly.
 
-**As of December 19, 2025, this project has been permanently discontinued.**
+**As of Feb 18, 2026, this project has been completed for public records.**
 
 ## Speculative Writing Archive (AI-Assisted)
 
